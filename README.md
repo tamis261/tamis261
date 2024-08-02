@@ -9,4 +9,4 @@ Você pode entrar em contato comigo 📫
 AluraStartEstudante@00001084508047sp@aluno.educacao.sp.gov.br
 
 
-![] (![image](https://github.com/user-attachments/assets/572ccf8d-7177-4941-a440-36e25015c830))
+![] (https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.gifs-animados.net%2Foriginal-317.htm&psig=AOvVaw3IWnSrLlr-JHpilXqc9Z30&ust=1722693699339000&source=images&cd=vfe&opi=89978449&ved=0CA4QjRxqFwoTCPjUmqS81ocDFQAAAAAdAAAAABAI)
